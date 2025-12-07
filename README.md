@@ -1,0 +1,2 @@
+# SIGED.certificado.secundaria.autenticacion.MEJN980521MMCDRY09
+MEJN980521MMCDRY09
